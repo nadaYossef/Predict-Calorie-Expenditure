@@ -124,4 +124,4 @@ For questions or feedback, feel free to reach out.
 
 ---
 
-*Good luck and happy modeling!*
+*Good luck and happy mode
